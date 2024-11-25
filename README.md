@@ -1,0 +1,2 @@
+# netflix
+bu uchinchi figma
